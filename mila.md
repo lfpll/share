@@ -8,7 +8,6 @@ Let the balcony doors open because likes the sun
 For food and walking usually I do it: 
 1. Start of the day 8-10 am 
 2. Start of night 5-7 pm 
-3. 
 But it can be later if you are busy, just have to be twice a day
 
 Food:
